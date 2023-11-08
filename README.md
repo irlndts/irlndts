@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @irlndts
 - 👀 I’m interested in something new
-- 🌱 I’m currently learning how to be project manager and product owner
+- 🌱 I’m currently learning how to be a good team-leader
 - 💞️ I’m looking to collaborate on something innovative
 - 📫 How to reach me - kleto4kin@gmail.com
 
